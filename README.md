@@ -6,7 +6,7 @@ Nice to meet all of you, guys!
 
 - I'm form _Dalat city_.
 - **1992s** :heart:
-- I want to learn something new
+- I want to learn something new so I choose learn programming!
 
 ## My hobby:
 
