@@ -14,7 +14,7 @@ So, I hope we will learn coding together. Make something cool!
 
 > - I like to trekking
 > - Watching e-sport
-> - Reading book
+> - I like to readind manga (One piece)
 > - Love to watch series "Babysister Club"
 
 ## My programming experience:
