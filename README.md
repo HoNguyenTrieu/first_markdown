@@ -2,6 +2,8 @@
 
 Nice to meet all of you, guys!
 
+So, I hope we will learn coding together. Make something cool!
+
 ## Who am I?
 
 - I'm form _Dalat city_.
